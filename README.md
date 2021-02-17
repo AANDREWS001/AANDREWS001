@@ -1,6 +1,7 @@
-# Major: Computer Science BA (In Progress)
+# Ashton E. Andrews
+## Major: Computer Science BA (In Progress)
 
-# Minor: Japanese (Completed)
+## Minor: Japanese (Completed)
 
 Saint John’s University
 
