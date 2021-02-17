@@ -1,4 +1,7 @@
 # Ashton E. Andrews
+### Major: Computer Science BA (In Progress)
+
+### Minor: Japanese (Completed)
 
 Saint John’s University
 
@@ -15,10 +18,6 @@ Public School Scholars Award Recipient (PSSP)
 National Highschool Diploma
 
 Expected Graduation Date: May 2021
-
-### Major: Computer Science BA (In Progress)
-
-### Minor: Japanese (Completed)
 
 ## SKILLS
 
