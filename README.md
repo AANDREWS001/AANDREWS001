@@ -16,6 +16,10 @@ National Highschool Diploma
 
 Expected Graduation Date: May 2021
 
+### Major: Computer Science BA (In Progress)
+
+### Minor: Japanese (Completed)
+
 ## SKILLS
 
 Computer Science: Java, JavaScript, C++, Visual Basics, GitHub, Linux, Microsoft Office, Microsoft
@@ -33,12 +37,6 @@ Assistant• Ministry of Foreign Affairs (Consular Division) · Handled private 
 
 ### Summer 
 2019 Assistant • Public School Scholars Office · Handled and filed private documents of college students. · Renewed scholarships of current and previous recipients.
-
-### Major: Computer Science BA
-
-(In Progress)
-
-### Minor: Japanese (Completed)
 
 ## EXTRA CURRICULAR
 
