@@ -1,4 +1,5 @@
 # Ashton E. Andrews
+
 ## Major: Computer Science BA (In Progress)
 
 ## Minor: Japanese (Completed)
