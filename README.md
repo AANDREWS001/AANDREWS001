@@ -5,11 +5,11 @@
 
 Saint John’s University
 
-2850 Abbey Plaza, Collegeville, 6321, innesota
+2850 Abbey Plaza, Collegeville, 56321, Minnesota
 
 320-223-9555 
 
-AANDREWS001@CSBSJU.EDU ashtonandrews@outlook.com
+AANDREWS001@CSBSJU.EDU | ashtonandrews@outlook.com
 
 International Student
 
