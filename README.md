@@ -43,7 +43,7 @@ Archipelago Student Association Member · Black Student Association Member · Fe
 
 ## PASSIONS
 
-Problem Solving, Coding, Statistics, Mathematics, Discrete Computational Mathematics, Philosophy, Peace and Positivity, Representing Groups and I also have a newfound flame for entertainment.
+Problem Solving, Coding, Statistics, Mathematics, Discrete Computational Mathematics, Philosophy, Peace and Positivity, Sports, Representing Groups and I also have a newfound flame for music.
 <!--
 **AANDREWS001/AANDREWS001** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
