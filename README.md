@@ -31,7 +31,7 @@ Personal: Good Communication, Adaptability, Dependability, Responsible, Punctual
 Contest Chair • Joint Events Council (JEC) · Learned the importance of leadership and teamwork. · Held events for thousands of students to potentially participate in. 
 
 ## Summer 2018 
-Assistant• Ministry of Foreign Affairs (Consular Division) · Handled private documents of over 300,000 citizens. · Legalized over 1000 citizens.
+Assistant • Ministry of Foreign Affairs (Consular Division) · Handled private documents of over 300,000 citizens. · Legalized over 1000 citizens.
 
 ## Summer 
 2019 Assistant • Public School Scholars Office · Handled and filed private documents of college students. · Renewed scholarships of current and previous recipients.
