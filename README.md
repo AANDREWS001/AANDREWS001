@@ -9,7 +9,7 @@ Saint John’s University
 
 320-223-9555 
 
-AANDREWS001@CSBSJU.EDU | ashtonandrews@outlook.com
+AANDREWS001@CSBSJU.EDU , ashtonandrews@outlook.com
 
 International Student
 
@@ -44,17 +44,3 @@ Archipelago Student Association Member · Black Student Association Member · Fe
 ## PASSIONS
 
 Problem Solving, Coding, Statistics, Mathematics, Discrete Computational Mathematics, Philosophy, Peace and Positivity, Sports, Representing Groups and I also have a newfound flame for music.
-<!--
-**AANDREWS001/AANDREWS001** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
