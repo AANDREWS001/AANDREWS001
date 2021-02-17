@@ -1,23 +1,16 @@
-
 # Ashton E. Andrews
 
 Saint John’s University
 
-2850 Abbey Plaza,
+2850 Abbey Plaza, Collegeville, 6321, innesota
 
-Collegeville,
+320-223-9555 
 
-56321,
-
-Minnesota
-
-320-223-9555 AANDREWS001@CSBSJU.EDU ashtonandrews@outlook.com
+AANDREWS001@CSBSJU.EDU ashtonandrews@outlook.com
 
 International Student
 
-Public School Scholars
-
-Award Recipient (PSSP)
+Public School Scholars Award Recipient (PSSP)
 
 National Highschool Diploma
 
